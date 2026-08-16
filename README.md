@@ -1,1 +1,1 @@
-Currently active, with weekly updates being brought to my solutions manual to Zettili's Quantum Mechanics every Sunday until the end of November.
+Currently active, with expository papers being uploaded every two weeks or so. Moreover, my solutions manual to the Third Edition of Zettili's Quantum Mechanics will be updated weekly until November.
